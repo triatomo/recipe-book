@@ -6,16 +6,17 @@ Childhood recipe made with love by Bibi
 
 ## Ingredients
 
-* 0,4j kg ayam filet (potong dadu)		
-* 1 bawang bombay besar
-* 3 bawang putih dikeprek , dichop
-* lada
-* garam, gula
-* 1 kaleng jagung
-* 30 g tepung terigu
-* 50 g mentega
-* 0,5 L susu
-* 1 sdm parsley cincang
+* 0,4 kg diced chicken breast		
+* 1 big yellow onion
+* 3 chopped garlic
+* pepper
+* salt
+* sugar
+* 1 can corn
+* 30 g flour
+* 50 g butter
+* 0,5 L milk
+* 1 sdm chopped parsley
 
 ## How to do it
 
